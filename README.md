@@ -8,43 +8,41 @@ https://t.me/DingDangCats_Bot?start=2dd1729a2da008bc
 阿虎社工库 ❤️
 https://t.me/AhucxBot?start=7bp95r7
 
-数据量可以,免费使用,可猎魔
+数据量可以,免费使用,可猎魔 无限免费查询,数据可以
 Hello World社工库 ❤️
 http://t.me/sgk2023_03_30bot?start=SGK_F1UTA640
-无限免费查询,数据可以
 
-星盾社工库 ❤️
+
+星盾社工库 ❤️超多快递地址数据  数据最全❤️
 https://t.me/XingDun2Bot?start=2XaSvly
-超多快递地址数据  数据最全❤️
 
-007社工库 ❤️
+
+007社工库 ❤️数据很多,签到就可得积分
 https://t.me/sgk007_bot?start=MTM2MzA5OTI2OQ
-数据很多,签到就可得积分
 
-情报局社工库 ❤️
+
+情报局社工库 ❤️签到得积分,可猎魔,数据很全
 https://t.me/InfSGK_bot?start=MTM2MzA5OTI2OQ==
-签到得积分,可猎魔,数据很全
 
 
-狗狗社工库❤️
+
+狗狗社工库❤️综合数据查询,签到免费使用
 https://t.me/DogeSGK_bot?start=1363099269
-综合数据查询,签到免费使用
 
 
-007工具机器人 ❤️
+
+007工具机器人 ❤️验手机号身份证法人要素
 https://t.me/sgk007_bot?start=MTM2MzA5OTI2OQ
-验手机号身份证法人要素
 
 
-AISGK社工库 ❤️❤️
+AISGK社工库 ❤️❤️综合数据最强的机器人,签到还能送积分免费查询
 http://t.me/aishegongkubot?start=AISGK_75S3OTUY
-综合数据最强的机器人,签到还能送积分免费查询
 
 
-魔乐乐机器人 ❤️❤️
+
+魔乐乐机器人 ❤️❤️查询机主信息方面十分给力
 http://t.me/MoLeLeBot?start=clnorv3pi006rn50vcqm5p750
-查询机主信息方面十分给力
-(注册后需要完成验证,验证成功送3分)
+
 
 
 BotentSGK社工库❤️
@@ -75,7 +73,7 @@ https://t.me/HePingSGKbot?start=7vWILry
 https://t.me/Ztgh_bot?start=1363099269
 
 大头机器人❤️(免费！！ 亲测有效 应该活不了太久)
-t.me/MoLeLeBot?start=clnorv3pi006rn50vcqm5p750
+http://t.me/MoLeLeBot?start=clnorv3pi006rn50vcqm5p750
 
 2024_bot❤️
 http://t.me/SGK_2024_BOT?start=wh5qnxsas
